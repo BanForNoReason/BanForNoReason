@@ -3,7 +3,7 @@
 **Software Engineer | Full Stack Development | Cloud Computing & DevOps**
 
 Based in Seattle, Washington
-📧 [chegarnovjonah@gmail.com](mailto:chegarnovjonah@gmail.com) | 🔗 [LinkedIn: Jonah Chegarnov]([https://www.linkedin.com/in/Jonah%20Chegarnov](https://www.linkedin.com/in/jonah-t-chegarnov/))
+📧 [chegarnovjonah@gmail.com](mailto:chegarnovjonah@gmail.com) | 🔗 [LinkedIn: Jonah Chegarnov](https://www.linkedin.com/in/jonah-t-chegarnov/)
 
 ---
 
